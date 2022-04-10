@@ -1,21 +1,41 @@
-# ꈍᴗꈍ﹕ivys campfires
-![This is KAITO](https://media.discordapp.net/attachments/925457945473470474/959706372814024734/Untitled127_20220402024942.png)
-### about
-- 🕹 hey, my name is ivy! i use **it/its only** and i am a genderfluid lesbian. 
-- 🖲 i have medically recognized DID. i refuse to state my mental illnesses publicly but I am Ivy Boseman, Glamrock Freddy, and Henry Emily IRL.
-- 💾 btw i'm a minor and neurodivergent.
 
-### byi
-- 🌀 i am often blueycapsules ponies, specifically myself! 
-- 💿 do not touch or cover if i don't know you.
-- 📎 whisper > public im often not paying attention.
-- 📼 do not use me for cover or hiding. 
-- 🌐 i rarely use tone tags.
+# ៸៸ ivy's campfire 𖤐
 
-### dni
-- 🖨 [basic crit](https://listography.com/dni)
-- 🎲 okegom fans
-- 🎙 proshippers
-- 📂 (**blueycaps ->**) you ship philliam / phildave, bossry, anyone with me (ivy) that isnt emilie (or boss) :thumbs_up:
-- 📠 anti tt/td or ct/cd (freak ouff!!!)
-- 🩹 **idk what else just dont be a freak**
+![help](https://media.discordapp.net/attachments/754019126875389961/865445705865887774/image1.png)
+
+🍏 **online** - feel free to interact! i'm actively on!
+
+🍋 **away** - tabbed out / making skins, just wait for me to come back! feel free to whisp!
+
+🍎 **busy** - with regis / on smth / switching. do not interact.
+
+## ・┈・┈・┈・┈・┈・┈
+
+#### byi 
+
+﹏ 🍒 you can usually find me either below the bsd area or docks
+
+⌇  i'm not okay with touching or using to hide. but you can whisper, kiss emote, give items, etc.
+
+﹏ 🍉 i don't accept friend requests from people i don't talk to!
+
+⌇  i'm autistic, and have DID.
+
+﹏ 🍒 i use tone tags rarely, but limited to /j, /nm and /lh. 
+
+⌇  if you wanna be friends, ask for my discord!
+
+## ・┈・┈・┈・┈・┈・┈
+
+#### dni
+
+⌇ if you like ace attorney, okegom, or DSMP. 
+
+﹏ self proclaimed "problematic" / proshippers.
+
+⌇ call blueycapsules characters m/lfs, d/lfs, h/mbos, Etc.
+
+﹏ ship philliam / phildave.
+
+⌇ kin ivy boseman, henry emily, or glamrock freddy
+(i am them irl, sorry)
