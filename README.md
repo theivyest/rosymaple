@@ -25,7 +25,7 @@
 
 ⌇  if you wanna be friends, ask for my discord!
 
-﹏ 🍒 if you wanna sit with me just do it! idm usually
+﹏ 🍉 if you wanna sit with me just do it! idm usually
 ## ・┈・┈・┈・┈・┈・┈
 
 #### dni
