@@ -5,6 +5,8 @@
 
 🍏 **online** - feel free to interact! i'm actively on!
 
+🫐 **looking for chat** - please interact! very bored!!!!!
+
 🍋 **away** - tabbed out / making skins, just wait for me to come back! feel free to whisp!
 
 🍎 **busy** - with regis / on smth / switching. do not interact.
@@ -25,7 +27,8 @@
 
 ⌇  if you wanna be friends, ask for my discord!
 
-﹏ 🍉 if you wanna sit with me just do it! idm usually
+﹏ 🍉 if you wanna sit with me just do it! i don't mind, usually!
+
 ## ・┈・┈・┈・┈・┈・┈
 
 #### dni
@@ -34,7 +37,7 @@
 
 ﹏ self proclaimed "problematic" / proshippers.
 
-⌇ call blueycapsules characters m/lfs, d/lfs, h/mbos, Etc.
+⌇ will call my skins weird things like a "h1mbo" or "m1lf"
 
 ﹏ ship philliam / phildave.
 
