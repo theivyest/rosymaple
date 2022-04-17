@@ -9,7 +9,7 @@
 
 🍋 **away** - tabbed out / making skins, just wait for me to come back! feel free to whisp!
 
-🍎 **busy** - with regis / on smth / switching. do not interact.
+🍎 **busy** - with regis / on smth / switching / do not interact.
 
 ## ・┈・┈・┈・┈・┈・┈
 
@@ -23,7 +23,7 @@
 
 ⌇  i'm autistic, and have DID.
 
-﹏ 🍒 i use tone tags rarely, but limited to /j, /nm and /lh. 
+﹏ 🍒 i don't use tone tags. although i'm not against them
 
 ⌇  if you wanna be friends, ask for my discord!
 
@@ -43,3 +43,5 @@
 
 ⌇ kin ivy boseman, henry emily, or glamrock freddy
 (i am them irl, sorry)
+
+﹏ anti tt/td. you're weird.
